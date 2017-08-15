@@ -2,5 +2,5 @@
 
 Esta serie de libros empeza con larry
 
-**Pablo Langa**
+**Pablo Langa**  Larry plotter lover
 
